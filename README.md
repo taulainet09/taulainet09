@@ -1,6 +1,6 @@
 # Victor Palomares
 
-**Red & Blue Team practitioner** • Bootcamp graduate leveling up through hands‑on labs • Ready for a junior role (NL / remote / hybrid)
+**Red & Blue Team** • Bootcamp graduate leveling up through hands‑on labs • Ready for a junior role (NL / remote / hybrid)
 
 > I break to learn, I defend to improve, and I document so others can ship securely. 🛡️
 
