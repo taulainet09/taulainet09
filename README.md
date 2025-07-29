@@ -52,7 +52,7 @@ HTB/THM daily. CCST & Security+ in progress. Open to junior roles (NL · remote/
 ## Contact
 
 - 📧 **Email:** [taulainet09@protonmail.com](mailto:taulainet09@protonmail.com)
-- 🔗 **LinkedIn:** [Victor Palomares](https://www.linkedin.com/in/victor-palomares-2b5388172/)
+- 🔗 **LinkedIn:** [Victor Palomares]([https://www.linkedin.com/in/victor-palomares-2b5388172/](https://www.linkedin.com/in/v%C3%ADctor-palomares-aracil-2b5388172/)
 
 ## Languages
 
